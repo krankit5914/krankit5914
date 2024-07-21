@@ -1,4 +1,3 @@
-# 💫 About Me:
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%233C8F97&duration=2000&lines=Hii!!%F0%9F%91%8B+I'm+Ankit.;I'm+Pursuing+MCA.;+How+are+you+today%3F;Nice+to+meet+you..Thank+you!!)](https://git.io/typing-svg)
  
  
